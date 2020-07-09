@@ -6,5 +6,5 @@ Recording music as *The Dual Nature of Matter*: [Soundcloud](https://soundcloud.
 
 I like taking [pictures](https://photos.deepaksingh.net)
 
-I sometimes write: [Blog](http://blog.deepaksingh.net) | [Medium](https://medium.com/flashing-neurons)
+I write on occasion: [Blog](http://blog.deepaksingh.net) | [Medium](https://medium.com/flashing-neurons)
 
